@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Cleverboy1625
 - 👀 I’m interested in playing footboll
 - 🌱 I’m currently learning data sciens and artificial intelegans
-- 💞️ I’m looking to collaborate on t.me/Cleverboy1625
+- 💞️ To contact me, you can contact my telegram address t.me/Cleverboy1625
 - 📫 How to reach me dadaxonovoyatillo1@gmail.com
 
 <!---
